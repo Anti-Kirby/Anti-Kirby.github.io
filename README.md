@@ -1,7 +1,4 @@
-title: Anthony Chuang
-logo: docs/assets/ball.png
-description: |I don't really know what to put here|
-theme: jekyll-theme-midnight
+# Anti-Kirby.github.io
 
 ## Projects
 ### Project 1
