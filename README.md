@@ -1,4 +1,4 @@
-# Thought
+# Thoughts
 - Peer tutoring (2023~2025)
 - Peer leader (2025~2026)
 - KCML volunteer (2023~2025)
@@ -7,6 +7,8 @@
 - Splatoon 3 Chapionship 2024 Taiwan
 - Project SEKAI WorldChampionship 2024 Spring
 - Piano (6 years)
+- Trumpet (5 years)
 - Rock Band Club
-
-
+- KCMUN
+- AMC
+- Nationwide senior high schools reading and writing competition (third)
