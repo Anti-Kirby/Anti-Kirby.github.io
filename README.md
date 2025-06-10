@@ -1,4 +1,4 @@
-#Thought
+# Thought
 - Peer tutoring (2023~2025)
 - Peer leader (2025~2026)
 - KCML volunteer (2023~2025)
