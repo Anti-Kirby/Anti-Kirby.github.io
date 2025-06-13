@@ -8,7 +8,6 @@
 - Fundraising (2018~2023)
 > ![Image](https://github.com/user-attachments/assets/6c8d804c-9f79-4983-b91b-cda1237ee7d1)
 
-
 ## Leadership
 - Peer tutoring leader (2025~2026)
 
