@@ -5,6 +5,7 @@
 - KCML volunteer (2023~2025)
 - Yu-Cheng Social Welfare Foundation volunteer (2025)
 > The volunteering is about serving people with disabilities. Since this is my first time doing it, things felt disordered and exhausting as the person I served has deaf. The only way of communicating is with hand gestures since voice was the main method to communicate for me. After several of tries, I was slowly able to guide him to finish the project we planned, colored Lantern. The experience was meaningful as we helped others.
+> 
 > ![Image](https://github.com/user-attachments/assets/9f1ad920-86f4-4ca3-abf5-700f37ce1419)
 - Fundraising (2018~2023)
 > ![Image](https://github.com/user-attachments/assets/6c8d804c-9f79-4983-b91b-cda1237ee7d1)
@@ -20,6 +21,7 @@
 - Splatoon 3 Chapionship 2024 Taiwan
   [Video](https://www.youtube.com/watch?v=jjpUPVmEDZ4&t=16790s)
 > One of my dreams beside being a computer programming is being an E-sport player, and this championship was my first step towards accomplishing my dream, although we lost the first match immediately after the championship started.
+> 
 > ![Image](https://github.com/user-attachments/assets/91dd7b30-8f0a-49fa-973e-589efd28c258)
 - Project SEKAI WorldChampionship 2024 Spring
 - KCMUN (IX, X, XII, XIII)
