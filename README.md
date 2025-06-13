@@ -20,9 +20,10 @@
 - KCMUN (XIII, XII, X, IX)
 - AMC (8, 9)
 
-## Musics
+## Sports & Musics
+-  
 - Piano (2018~2023) (dis)
 - Trumpet (2020~2026) (dis)
-- Rock Band Club
+- Rock Band Club (dis)
 <img width="371" alt="Image" src="https://github.com/user-attachments/assets/004d5228-cd98-4b39-af69-2f3c82d23f8a" />
 
