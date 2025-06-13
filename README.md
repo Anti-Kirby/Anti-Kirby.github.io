@@ -19,14 +19,15 @@
 ## Activities
 - Splatoon 3 Chapionship 2024 Taiwan
   [Video](https://www.youtube.com/watch?v=jjpUPVmEDZ4&t=16790s)
-- Project SEKAI WorldChampionship 2024 Spring (dis & pic)
+- Project SEKAI WorldChampionship 2024 Spring
 - KCMUN (XIII, XII, X, IX)
 - AMC (8, 9)
 
 ## Sports & Musics
--  
-- Piano (2018~2023) (dis)
-- Trumpet (2020~2026) (dis)
-- Rock Band Club (dis)
+- Cycling around Taiwan (2024)
+- Swimming across Sun-Moon Lake (2023)
+- Piano (2018~2023)
+- Trumpet (2020~2026)
+- Rock Band Club (2021 & 2024~2025)
 <img width="371" alt="Image" src="https://github.com/user-attachments/assets/004d5228-cd98-4b39-af69-2f3c82d23f8a" />
 
