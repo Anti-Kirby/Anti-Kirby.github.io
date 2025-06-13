@@ -4,9 +4,10 @@
 - Peer tutoring volunteer (2023~2025)
 - KCML volunteer (2023~2025)
 - Yu-Cheng Social Welfare Foundation volunteer (2025)
+- Fundraising (2018~2023)
 
 ## Leadership
-- Peer leader (2025~2026)
+- Peer tutoring leader (2025~2026)
 
 ## Awards
 - 2024-2025 MWBIT (bronze)
@@ -15,11 +16,11 @@
 ## Activities
 - Splatoon 3 Chapionship 2024 Taiwan
 - Project SEKAI WorldChampionship 2024 Spring
-- KCMUN
-- AMC
+- KCMUN (XIII, XII, X, IX)
+- AMC (8, 9)
 
 ## Musics
-- Piano (6 years)
-- Trumpet (5 years)
+- Piano (2018~2023)
+- Trumpet (2020~2026)
 - Rock Band Club
 
