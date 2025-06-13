@@ -19,6 +19,7 @@
 ## Activities
 - Splatoon 3 Chapionship 2024 Taiwan
   [Video](https://www.youtube.com/watch?v=jjpUPVmEDZ4&t=16790s)
+> https://github.com/Anti-Kirby/Anti-Kirby.github.io/issues/4#issue-3142246540
 - Project SEKAI WorldChampionship 2024 Spring
 - KCMUN (XIII, XII, X, IX)
 - AMC (8, 9)
