@@ -4,6 +4,7 @@
 - Peer tutoring volunteer (2023~2025) (dis)
 - KCML volunteer (2023~2025) (dis)
 - Yu-Cheng Social Welfare Foundation volunteer (2025) (pic)
+![Image](https://github.com/user-attachments/assets/9f1ad920-86f4-4ca3-abf5-700f37ce1419)
 - Fundraising (2018~2023) (pic)
 
 ## Leadership
