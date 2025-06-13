@@ -21,7 +21,7 @@
   [Video](https://www.youtube.com/watch?v=jjpUPVmEDZ4&t=16790s)
 > ![Image](https://github.com/user-attachments/assets/91dd7b30-8f0a-49fa-973e-589efd28c258)
 - Project SEKAI WorldChampionship 2024 Spring
-- KCMUN (XIII, XII, X, IX)
+- KCMUN (IX, X, XII, XIII)
 - AMC (8, 9)
 
 ## Sports & Musics
